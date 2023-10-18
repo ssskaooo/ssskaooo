@@ -36,3 +36,5 @@
 email - berkut.lg92@yandex.ru
 
 https://www.instagram.com/biryukov.sport/
+
+https://vk.com/vitaliy_gennadievi4
